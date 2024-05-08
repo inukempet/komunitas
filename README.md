@@ -577,3 +577,12 @@ LinkedIn: [Munajat](https://www.linkedin.com/in/bymunajat/) <br/>
 Github: [https://github.com/bymunajat](https://github.com/bymunajat) 
 
 <hr/>
+
+### Wisnu
+
+Salam kenal semua, Saya bisa dipanggil **Tikil**, saya ingin menjadi **Web Developer** dan **Full Stack Web Developer** saya berasal dari Bekasi, Jawa Barat.
+Saya disini ingin belajar untuk menjadi seorang web/fullstack web developer, dengan pengetahuan 0% saya harap abang abang disini bisa mengarahkan saya untuk apa saja yang harus saya pelajari dari awal, karena yang sekarang saya punya hanya waktu senggang yang banyak.
+Sekian dari saya, saya ucapkan terima kasih.
+
+Instagram : [@Weitsnu](https://www.instagram.com/weitsnu/)
+[https://github.com/inukempet](https://github.com/inukempet)
